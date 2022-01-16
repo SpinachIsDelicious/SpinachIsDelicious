@@ -17,7 +17,7 @@ Here are some socials.
 
 [Email me!](mailto:spinachofficial@protonmail.com)
 ---
-[Join a Discord Server!](https://discord.gg/9p5pexd75P)
+[Join a Discord Server!](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 ---
 [Watch a video!](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 

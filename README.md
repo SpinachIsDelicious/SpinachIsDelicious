@@ -10,7 +10,7 @@ Let's start off with some basic information.
 * I love to code
 * I hate when people waste time
 * Jeff Bezos has a fat neck
-* I have a Discord, Spinach#3302
+* I have a Discord, Spinach#5440
 * Add me if you want to chat.
 
 Here are some socials.
